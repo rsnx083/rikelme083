@@ -46,11 +46,11 @@ Como me encontrar
 
 
 
-📫 E-mail: [Insira seu e-mail, se desejar]
+📫 E-mail: rikelmeryan465@gmail.com
 
 
 
-🌐 LinkedIn: [Insira seu LinkedIn, se aplicável]
+🌐 LinkedIn: linkedin.com/in/ryan-rikelme-silva-nascimento-9758162ba
 
 
 
